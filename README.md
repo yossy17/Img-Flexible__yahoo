@@ -1,3 +1,3 @@
-# Img-Flexible\_\_yahoo"
+# Img-Flexible\_\_yahoo
 
 https://codepen.io/dfupttsl-the-scripter/pen/oNRwRQw
